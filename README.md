@@ -1,0 +1,1 @@
+# MNSYaminiTask6
